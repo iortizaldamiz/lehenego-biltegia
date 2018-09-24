@@ -1,2 +1,2 @@
 Kaixo 
-ni iñaki naiz zer moduz?
+ni iñaki naiz
