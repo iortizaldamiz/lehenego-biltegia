@@ -1,2 +1,0 @@
-Kaixo 
-ni iñaki naiz
